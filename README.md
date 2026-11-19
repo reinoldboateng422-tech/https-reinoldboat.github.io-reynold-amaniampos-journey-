@@ -1,0 +1,2 @@
+# https-reinoldboat.github.io-reynold-amaniampos-journey-
+Reynold: Amaniampo's Journey is a story-driven 2D r Play as Reynold on an exciting adventure through forests, caves, mountains, and enemy fortresses to reach Amaniampong Senior High School.  Battle powerful monsters and unique bosses, rescue fellow students, collect useful power-ups, and overcome challenging obstacles using fast-paced platform
